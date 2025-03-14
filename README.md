@@ -1,3 +1,1 @@
-####BINAY PITOK
-tripitok pdf file from rajbon bihar
-This pdf file is collected from rajbon bihar rangamti few venerable monks upload it.
+####বৌদ্ধ ধর্মের প্রচার ও প্রসারের লক্ষ্যে রাজবন বিহার, রাঙামাটি, বাংলাদেশের কয়েকজন নিবেদিতপ্রাণ ভিক্ষুর অক্লান্ত প্রচেষ্টায় পিটকীয় ও অন্যান্য ধর্মীয় বইগুলো পিডিএফ আকারে রূপ দেয়া সম্ভব হলো। সেগুলোই আমি শেয়ার করলাম আগ্রহী বাংলাভাষাভাষী বৌদ্ধদের কাছে
